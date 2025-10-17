@@ -2,9 +2,7 @@
 
 
 
-## $${\color{pink}Yuri \space Kitten}$$
-
 <img src="<img width="500" height="700" alt="Muut3chibi" src="https://github.com/user-attachments/assets/6c63a778-cc42-41d9-aa72-a0f84541dbbc" />
-<div align="center">" />
+<div align="center">
 </p>
 
